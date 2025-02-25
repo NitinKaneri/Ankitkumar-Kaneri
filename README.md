@@ -89,7 +89,7 @@ With **8+ years** in SAP Technology, I am a certified UX Designer, UX Writer, an
 
 ## 📬 Contact Details
 
-- 📞 [Call](callto:+91 9538856366)
+- 📞 +91 9538856366
 - 📧 [Email](mailto:kaneri776@gmail.com)
 - 🔗 [LinkedIn](https://www.linkedin.com/in/ankitkumar-kaneri-723237102/)
 - 🏗 [GitHub](https://github.com/NitinKaneri/Ankitkumar-Kaneri)
